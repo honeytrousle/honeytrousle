@@ -1,2 +1,2 @@
-![animation](https://github.com/user-attachments/assets/bda9cdbc-37a1-4e86-bee7-9dffbb581d1d)
-![animation](https://github.com/user-attachments/assets/28025d15-47fe-4f9e-aaea-d64575da57fe)
+
+<img width="280" height="208" alt="1-snowpile" src="(https://github.com/user-attachments/assets/28025d15-47fe-4f9e-aaea-d64575da57fe" />
